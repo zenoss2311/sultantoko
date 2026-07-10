@@ -1,0 +1,2 @@
+# sultantoko
+🚀 Deployed via Bot
